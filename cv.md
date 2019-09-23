@@ -102,6 +102,7 @@ Education
 
 2008-2012
 :   **College of Management**: Astana, Kazakhstan
+2012-2016
 :   **TUSUR University**: Tomsk, Russia
 
 English
